@@ -34,4 +34,6 @@ Whether you’re a seasoned pro or just getting started, if you share our motto,
 
 Let’s work together to make the digital world a safer place—one challenge at a time!
 
+[Explore Careers](/careers)
+
 ___
